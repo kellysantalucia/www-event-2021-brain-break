@@ -18,7 +18,7 @@ permalink: /sponsors/
  * Social Media recognition
  * Mention in Brain Break activity promotion
  * Option to participate in Capture the SWAG
- * First company to commit per activity will be given this opportunity
+ * "*First company to commit per activity will be given this opportunity"
  
 * **Package Costs:**
 $5,000/USD Corporate Member: $4,750/USD 
