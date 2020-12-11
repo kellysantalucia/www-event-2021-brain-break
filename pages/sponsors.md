@@ -6,7 +6,7 @@ permalink: /sponsors/
 
 ---
 
-## Sponsors
+## Brain Break Sponsorship Opportunities
 
 **Brain Break Sponsorship**
  
