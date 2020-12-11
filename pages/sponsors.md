@@ -8,8 +8,6 @@ permalink: /sponsors/
 
 ## Brain Break Sponsorship Opportunities
 
-**Brain Break Sponsorship**
- 
 *Max. 2 sponsors per event, 6 total events per year
 
 **Benefits Include:**
